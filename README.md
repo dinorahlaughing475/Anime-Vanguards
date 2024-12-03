@@ -1,5 +1,5 @@
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/4ihMDr8)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/4gdTjVr)***
 # PASS - 2024
 
 ![maxresdefault](https://github.com/user-attachments/assets/5bd86558-608f-419b-9693-d9300fa37f7e)
